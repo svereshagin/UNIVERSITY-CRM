@@ -1,0 +1,1 @@
+![img.png](../../images/1.1task.png)
